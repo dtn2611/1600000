@@ -39,6 +39,6 @@
 
 结语
 选择我们的平台，您将获得优质的日本AV免费影片体验。高清无水印、免注册观看、无广告干扰以及持续更新的最新影片资源，所有这一切都确保您享受到极致的观影体验。现在就开始您的观影之旅，尽情享受丰富的内容吧！
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtn2611/1600000 ）</span>
 
 
